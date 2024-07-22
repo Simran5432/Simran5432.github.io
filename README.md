@@ -11,6 +11,8 @@ I have also completed my EXCEL COURSE
 
 MY ACTIVITY REPORT OF 2024 
 
+[ACTIVITY REPORT 2024](https://simran5432.github.io/Simran54321.github.io/)
+
 
 
 
