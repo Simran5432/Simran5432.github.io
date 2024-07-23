@@ -7,7 +7,11 @@ My name is simranpreet kaur.I am 18 years old.I love to do painting,dance,readin
 #MARKS IN 12TH CLASS
 I GOT **82.5%** IN 12TH CLASS EXAMINATION.
 
-I have also completed my EXCEL COURSE
+I have also completed my EXCEL COURSE 
+THIS IS MY CERTIFICATE
+
+![IMG_20240723_125648](https://github.com/user-attachments/assets/194be2bb-3ded-441a-968b-b3443ef10c3f)
+
 
 MY ACTIVITY REPORT OF 2024 
 
