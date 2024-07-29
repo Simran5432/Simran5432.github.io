@@ -4,6 +4,10 @@
 
 My name is simranpreet kaur.I am 18 years old.I love to do painting,dance,reading books.I love to spend quality time with my friends and family.I am currently  pursuing btech cse in GNDEC.
 
+
+![IMG_20240729_194525.jpg](https://github.com/user-attachments/assets/32920b22-7292-438e-b15b-958ef03c4d5b)
+
+
 #MARKS IN 12TH CLASS
 I GOT **82.5%** IN 12TH CLASS EXAMINATION.
 
